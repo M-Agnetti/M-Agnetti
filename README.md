@@ -7,7 +7,7 @@
 
 - 📫 How to reach me : **agnettim.pro@gmail.com**
 
-- ⚡ Fun fact **I'm a fervent fan of pandas** 🐼
+- 🐼 Fun fact **I'm a fervent fan of pandas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
